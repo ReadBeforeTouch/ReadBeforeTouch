@@ -4,13 +4,15 @@ age : adult/20-23
 
 likes : animanga/hwa, bsd, orv, eleceed, art, writing
 
-dislikes : basic dni, fakeclaimers, trauma olympics, cringe culture
+dislikes/dni : basic dni, fakeclaimers, trauma olympics, cringe culture, hate on furries and other such groups
 
 **: Boundaries on ponytown/in games :**
 
 ✔ yes : C+H ➜ Friend req ➜ Tone tags ➜ Questions
 
-✘ no : Kiss ➜ Flirt ➜ Do not copy my characters ➜ Hump/be weird (I will block/hide you)
+✘ no : Kiss (uc)* ➜ Flirt (uc)* ➜ Do not copy my characters ➜ Hump/be weird (I will block/hide you)
+
+*You can use the kissing animation to cuddle/snuggle. The reason i put (uc)/unless close is because i only allow platonic kissing/flirting as a joke.
 
 **__: Boundaries on discord/in general :__**
 
