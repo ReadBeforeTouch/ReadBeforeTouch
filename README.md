@@ -10,7 +10,7 @@ dislikes : basic dni, fakeclaimers, trauma olympics, cringe culture
 
 ✔ yes : C+H ➜ Friend req ➜ Tone tags ➜ Questions
 
-✘ no : Kiss ➜ Flirt ➜ Do not copy my characters
+✘ no : Kiss ➜ Flirt ➜ Do not copy my characters ➜ Hump/be weird (I will block/hide you)
 
 **__: Boundaries on discord/in general :__**
 
