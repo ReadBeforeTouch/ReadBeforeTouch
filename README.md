@@ -12,7 +12,7 @@ dislikes/dni : basic dni, fakeclaimers, trauma olympics, cringe culture, hate 
 
 ✘ no : Kiss (uc)* ➜ Flirt (uc)* ➜ Do not copy my characters ➜ Hump/be weird (I will block/hide you)
 
-*You can use the kissing animation to cuddle/snuggle. The reason i put (uc)/unless close is because i only allow platonic kissing/flirting as a joke.
+*You can use the kissing animation to cuddle/snuggle. The reason i put "uc"/unless close is because i only allow platonic kissing/flirting as a joke, and only if you're 18+.
 
 **__: Boundaries on discord/in general :__**
 
@@ -46,6 +46,10 @@ sys: this tag is used when an alter is fronting and are either using their facec
 
 ❔**What is a system?**
 
+System is a term people with a CDD (complex dissociative disorders) use to describe themselves. Being a system within the context of the disorders OSDD/DID, previously known as multiple personality disorder, means that multiple people, or identities/alters/parts, share one body. As a child, your identity is not one whole. It's multiple parts that gradually fuse and becomes one singular identity as you age. Those who are systems didn't manage to become/fuse into one identity because of amnesia caused by severe repeated trauma keeping these multiple parts separate. Think of it like a pizza. People without a cdd (often referred to as singlets) are whole pizzas, meanwhile systems are pizzas that have been sliced into pieces. They are separate pieces but still work together to make one whole. 
+
+**tldr:** Systems form due to an inability to integrate into one solid personality because of childhood trauma, thus developing into multiple. It's an extreme coping mechanism of sorts that can only form during childhood. 
+It's a very complex disorder and there's a lot more important things that are good to know, but this is the general gist of it.
 
 ❔ **How do alters switch in real life and not just online?**
 
