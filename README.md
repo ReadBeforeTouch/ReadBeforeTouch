@@ -75,6 +75,9 @@ No! Being a system is *not* roleplay. The difference between being a system and 
 ❔**I would love to be a system, it seems so fun having friends/fictional characters in your head!**
 
 There is so much wrong with this statement. Being a system is not fun. You can enjoy other alters in your system and other things about being a system, but that's *if you're a system*! As a singlet, you should not want to be a system. Being a system can come with arguments, miscommunications, completely forgetting big chunks of your life, never feeling comfortable in your own body and so much more. And regardless, it's not even a guarentee to have introjects, so saying you want fictional characters in your head isn't even completely a possibility. And most importantly, __all systems are formed from trauma.__ Being a system means you were traumatized as a young child. Being a system is not all fun and games.
+
+## Further system info below
+https://systemexplain.carrd.co/#enter
 <!---
 ReadBeforeTouch/ReadBeforeTouch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
